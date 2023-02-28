@@ -1,7 +1,7 @@
 # HSS4J - Mexican Modernity
 
 ## Last Week Review
-- **Plutarco Elias Calles**: Puppet master
+- **Plutarco Elias Calles**: The puppet master
 	- He took control of the country from the shadows (after being afraid of being assassinated)
 	- Perfected the idea that Diaz dreamed of (staying in power without being seen as bad by the public)
 
