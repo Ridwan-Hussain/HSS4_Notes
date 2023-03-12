@@ -15,14 +15,11 @@ Diego Torribo - Noche Mexicana and Exhibition of Popular Arts
 - Not actors in this process, but the objects
 - 
 
-
 Logan Po - Art and Corruption by Siqueiros
 - very controversial
 - 
 
 Ya boy - 
-
-
 
 ## Lecture Notes
 - Art can only be made with government support 
@@ -31,4 +28,3 @@ Ya boy -
 	- Gives examples of what high quality arts look like
 	- Teach urban middle and upper classes to admire and seek to acquire these newly valorize markers of Mexicanidad
 - 
-
