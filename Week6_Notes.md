@@ -32,8 +32,3 @@ Ya boy -
 	- Teach urban middle and upper classes to admire and seek to acquire these newly valorize markers of Mexicanidad
 - 
 
-Prompts are up on HSS slides:
-1. 
-1. 
-1. 
-1.

@@ -30,7 +30,7 @@ Andrea - The Cosmic Race
 ## Lecture Notes
 - After Maximato, it was Cardena 
 - Because Cardena did not choose b/w radical left and radical right, during the Cold War Mexico was able to stay neutral instead of being pulled to one side or another
-- Spnaish America did allow Spainards to racially mix with Native Americans
+- Spanish America did allow Spainards to racially mix with Native Americans
 	- Very different orm America
 	- Allowed mestizos
 		- This is because Catholicism wanted to spread their religion
