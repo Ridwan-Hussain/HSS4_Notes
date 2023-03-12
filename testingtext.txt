@@ -1,4 +1,0 @@
-It it I, Ridwan.
-
-
-I am changing a textfile to better figure out how github works.
